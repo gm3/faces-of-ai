@@ -1,4 +1,4 @@
 # faces-of-ai
 Faces Of Ai Series
 
-![](https://hackmd.io/_uploads/Skf_E8wys.jpg)
+![](https://i.imgur.com/L5gPsia.jpg)
